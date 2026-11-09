@@ -1,0 +1,3 @@
+This reading highlighted that humans are all now cyborgs. We are hybrids of machines and organisms via our phones, computers, and more. There is tension in how technology can be used for both liberation and oppression. Haraway sees opportunity in the “pleasure in the confusion of boundaries and for responsibility in their construction.” pg. 4 
+
+Haraway states that cyborgs are illegitimate offspring of militarism and patriarchal capitalism, but there is still potential to use machines to build the future we want. “Our machines are disturbingly lively, and we ourselves frighteningly inert.” pg. 6 We have to wake up and learn the tools. 
